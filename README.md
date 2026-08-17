@@ -2,7 +2,7 @@
 
 🎓 **Computer Engineering Student** @ University of Kansas | Class of 2028  
 💻 Passionate about **Full-Stack Development** | **Blockchain** | **AI Integration**  
-🚀 4.0 GPA | Building real-world projects and learning new technologies
+🚀 3.9 GPA | Building real-world projects and learning new technologies
 
 ---
 
